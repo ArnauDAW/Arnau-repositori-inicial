@@ -14,4 +14,4 @@
 - Al filo del mañana https://www.imdb.com/es-es/title/tt1631867/
 
 
-!Imatge Ocean's Eleven https://www.amazon.es/Ocean-Eleven-Poster-dormitorio-pel%C3%ADculas/dp/B0C3BHZVQ7
+-Imatge Ocean's Eleven https://www.amazon.es/Ocean-Eleven-Poster-dormitorio-pel%C3%ADculas/dp/B0C3BHZVQ7
